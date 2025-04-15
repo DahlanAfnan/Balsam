@@ -1,0 +1,1 @@
+The Balsam Project is a forward-thinking initiative aimed at tackling key challenges within the healthcare sector. It seeks to build a comprehensive healthcare platform and community that enhances accessibility and elevates the overall user experience.
